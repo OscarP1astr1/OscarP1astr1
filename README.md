@@ -13,6 +13,6 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
-  ㅤ<p align="center">!( F1 fans int! ! ! !
+  ㅤ<p align="center">F1 fans int! ! ! !
 
 
