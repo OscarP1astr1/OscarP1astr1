@@ -14,4 +14,4 @@
  ㅤ<p align="center">F1 fans int! ! ! !
 
 
- ⠀⠀⠀<p align="center"![[Image Description](https://i.pinimg.com/736x/23/b1/62/23b1628c2307e80dcd546414f5386abe.jpg)](https://i.pinimg.com/736x/23/b1/62/23b1628c2307e80dcd546414f5386abe.jpg)
+ ⠀
