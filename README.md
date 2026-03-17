@@ -13,9 +13,6 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
+  ㅤ<p align="center">![]( F1 fans int! ! ! !
 
-
-
-- F1 fans int! ! ! !
-- Op81 , Ln4 , Sv5 , Dr3 , Mv33/1 , Sp11...etc
 
