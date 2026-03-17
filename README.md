@@ -11,8 +11,6 @@
 
   ⠀ㅤ<p href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Eb+Garamond&weight=200&size=17&duration=4997&pause=500&color=F7F7F7&width=435&lines=beauty!+I+love+these;u+sound+so+sincere+when+you+say+that" alt="Typing SVG" /></p>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-
-
-  ㅤ<p align="center">F1 fans int! ! ! !
+ ㅤ<p align="center">F1 fans int! ! ! !
 
 
