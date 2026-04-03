@@ -9,9 +9,6 @@
 ⠀⠀⠀<p align="center"><img width="900" height="483" alt="Image" src="https://github.com/user-attachments/assets/9afa246b-de71-4e08-82d1-5a69f7b854ed" />
 ⠀⠀⠀<p align="center"> " stop  crying  your  heart  out " 
 
-
-<img width="160" height="160" alt="image" src="https://github.com/user-attachments/assets/c6fe633a-958e-436d-8ebe-7c82d4841c7e" />
-
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
  ㅤ<p align="center">F1 fans int! ! ! !
 
