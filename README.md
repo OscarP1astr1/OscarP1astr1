@@ -9,7 +9,7 @@
 
 ⠀⠀⠀<p align="center"><img width="700" height="250" alt src="https://i.pinimg.com/1200x/1a/14/8c/1a148c960e1ad87abd76f0e8858ba8ce.jpg" />
 
-⠀⠀⠀<p align="center"><img width="350" height="350" alt src="https://i.pinimg.com/originals/79/61/46/79614649019cdb48f18d4420a8335a4e.gif" />
+⠀
 
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
  ㅤ<p align="center">F1 fans int! ! ! !
