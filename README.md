@@ -10,7 +10,5 @@
 
 
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
- ㅤ<p align="center">F1 / MotoGp / BofB / Dr Nowhere Fan int!!! ℘
- <p align="center"><img width="200" height="200"alt src="https://cdn.phototourl.com/free/2026-07-08-83feed10-c6f0-4ea9-b627-d679a3c96b6e.jpg"/>  ← Biggie Riv btw
 
  ⠀
